@@ -1,0 +1,1 @@
+# Criando_Artigos_Tecnicos_com_ChatGPT_e_Lexica_art
